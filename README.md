@@ -11,3 +11,6 @@ utilizo esse espaço para minha organização e compartilhamento dos meus projet
 pupo.brayan@escola.pr.gov.br 
 
 @pupo_2k24
+
+
+![](https://media1.tenor.com/m/st4Jixzu9mEAAAAd/sasuke.gif)
